@@ -1,4 +1,4 @@
-## Hi there 👋
+## The Anny Collective
 
 #### Members:
 ~~~
