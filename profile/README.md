@@ -2,7 +2,7 @@
 
 #### Members:
 ~~~
-. Anna (0opsDev)
+. Anna (annyita)
 ~~~
 
 Support Anna on ko-fi:
